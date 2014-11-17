@@ -27,6 +27,10 @@ The Whisper Circle next to MemChu
 
 > One of my favorite Arillaga gifts. It's on the right side as you face the front of the church, and just looks like a sort of circular bench area. Go stand in the middle of the circle, and speak out loud to hear what happens.
 
+Arizona Cactus Garden
+
+> President Henessy's favorite place on campus
+
 Many more [here](http://www.quora.com/Stanford-University/What-are-the-most-interesting-secret-places-on-the-Stanford-campus).
 
 
